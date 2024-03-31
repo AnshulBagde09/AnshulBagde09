@@ -2,7 +2,7 @@
 - 👀 I’m interested in good ideas
 - 🌱 I’m currently learning javascript
 - 📫 How to reach me  anshulbagde09@gmail.com
-- follow me on instagram https://www.instagram.com/crazyboy_.ab/
+- follow me on instagram (https://www.instagram.com/anshxl_.9/)
 - follow me on twitter https://twitter.com/AnshulBagde3
 
 <!---
